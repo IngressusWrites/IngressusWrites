@@ -6,4 +6,5 @@ This profile is where I publish projects I am doing to learn how to code. I am c
 God bless!
 
 Profile: Edited shot of an animation by XungMengLong.
+
 Banner: The surprised Ingressus is an emoji taken from the Knights of Ardonia Discord server. I created my banner from scratch.
