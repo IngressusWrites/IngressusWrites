@@ -27,6 +27,6 @@ Could you please donate Prime Songs? I have been looking for them ever since Tha
 
 𝗜𝗺𝗮𝗴𝗲 𝗖𝗿𝗲𝗱𝗶𝘁𝘀!
 
-Avatar: Пакетик мандаринок🍊 (If it has updated to digital art on your end) or an edited shot from one of XunMenLong's fan animations of Songs of War (If it still looks like Ingressus' Minecraft head)
+Avatar: Пакетик мандаринок🍊 (If it has updated to digital art on your end), or an edited shot from one of XunMenLong's fan animations of Songs of War (If it still looks like Ingressus' Minecraft head)
 
 Banner: Created by me with my avatar's image in the background.
