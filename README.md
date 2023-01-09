@@ -11,8 +11,13 @@ I am learning to code on FreeCodeCamp. However, I don't have any projects outsid
 𝗪𝗮𝘆𝘀 𝘁𝗼 𝗖𝗼𝗻𝗻𝗲𝗰𝘁!
 
 Discord: Ingressus#0001
+
 Twitter: IngressusWrites
+
 YouTube: IngressusWrites
+
+Wattpad: IngressusWrites
+
 Abducted Messenger Bird: Merlin
 
 𝗔𝗻𝘆𝘁𝗵𝗶𝗻𝗴 𝗲𝗹𝘀𝗲?
